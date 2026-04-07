@@ -12,6 +12,14 @@ https://drive.google.com/drive/folders/14prEhkGwcer1juLIsVyhe3dLTZ27weNz
 PDF LJFZ:
 https://drive.google.com/drive/folders/16CvF4oPLcdEVaI9s93NmEShpGs-RirdF
 
+ini CV/Resume standar jepang bisa kalian coba isi https://drive.google.com/drive/folders/1SklDpylic6AIoOBQAQVBy7zjr1iLVQ7p?usp=sharing
+
+CV dan Resume standar Jepang
+https://drive.google.com/drive/folders/1SklDpylic6AIoOBQAQVBy7zjr1iLVQ7p?usp=sharing
+
+KK Standar Jepang
+https://drive.google.com/drive/folders/1ADywLEqwTj6pcX8dF2xT-N3vL6FFI1sq?usp=sharing
+
 ## Youtube Channel
 Muzukashii Nihongo 
 WaGoMu #JapaneseClass
