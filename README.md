@@ -34,11 +34,21 @@ Japanese writing paper :
 https://drive.google.com/drive/folders/1wvYkmffxrG90oDgKSlWGFSEMk1P4h2T_?usp=sharing
 
 #### Day 1 - KANA (1) A-KA-SA - Monday, 6 April 2026
-- youtube material: https://youtu.be/CbXvrMixgh8?si=Cq8-bFfVYTQLuQUw
+- youtube material: https://youtu.be/CbXvrMixgh8
 - pdf material: https://drive.google.com/file/d/1LOoXVAjU9QgwTfliwBB4TSDRd3bPwQx2/view?usp=sharing
 - my assignment:
 
-#### Day 2 - KANA (2) TA-NA-HA - Monday, 6 April 2026
+#### Day 2 - KANA (2) TA-NA-HA - Tuesday, 7 April 2026
 - youtube material: https://youtu.be/Kx7fVaoDGzI
 - pdf material: https://drive.google.com/file/d/1LhSGeoV-Lc_s3sQVMdrYpnmX8DXO5DGF/view?usp=sharing
 - my assignment: 
+
+#### Day 3 - KANA (3) MA-YA-RA-WA-N - Wednesday, 8 April 2026
+- youtube material: https://youtu.be/CtzSjTB_lkI
+- pdf material: https://drive.google.com/drive/folders/1uV7Dk-F28mdNOeC8BGpDqbUTh7fvI0bz?usp=sharing
+- my assignment:
+
+#### Day 4 - KANA (4) Tenten Maru, Ya Yu Yo Kecil - Thursday, 9 April 2026
+- youtube material: https://youtu.be/Q_xVODpUvgk
+- pdf material: https://drive.google.com/file/d/1dm4zYS7IEcNpEbmmsiHFuVy2QzMVjh1G/view?usp=sharing
+- my assignment:
