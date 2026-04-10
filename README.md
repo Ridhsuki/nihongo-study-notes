@@ -52,3 +52,14 @@ https://drive.google.com/drive/folders/1wvYkmffxrG90oDgKSlWGFSEMk1P4h2T_?usp=sha
 - youtube material: https://youtu.be/Q_xVODpUvgk
 - pdf material: https://drive.google.com/file/d/1dm4zYS7IEcNpEbmmsiHFuVy2QzMVjh1G/view?usp=sharing
 - my assignment:
+
+#### Day 5 - KANA (5) Tsu Kecil, Bunyi Panjang, Partikel - Friday, 10 April 2026
+- youtube material: https://youtu.be/nZ5yXo5Gf1c
+- pdf material: https://drive.google.com/file/d/1R67mfDUKVhdu5_OIR1Ympesb27ba2o8d/view?usp=sharing
+- my assignment:
+
+
+#### Day _ - KANA (_)  - _ - _ April 2026
+- youtube material: 
+- pdf material: 
+- my assignment:
