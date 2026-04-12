@@ -26,6 +26,7 @@ WaGoMu #JapaneseClass
 
 ## Ujian SSW
 https://www.prometric-jp.com/id/ssw/test_list/
+___
 
 ## My Dump Notes
 ### N5 Introduction Learning ([@kenaljepangyuk](https://www.instagram.com/kenaljepangyuk/)) | Online class 
@@ -63,3 +64,47 @@ https://drive.google.com/drive/folders/1wvYkmffxrG90oDgKSlWGFSEMk1P4h2T_?usp=sha
 - youtube material: 
 - pdf material: 
 - my assignment:
+___
+
+### Practices
+#### Hiragana
+はじめまして、  
+わたしは かおるです。さいたまから きました。  
+はたちです。  
+わたしの しゅみは ほんを よむことです。  
+たこやきが いちばん だいすきです。  
+えいがを みることも すきです。  
+どうぞ よろしく おねがいします。  
+
+#### Romaji
+`Hajimemashite,`  
+`Watashi wa kaoru desu. saitama kara kimashita.`  
+`Hatachi desu.`  
+`Watashi no shumi wa hon o yomu koto desu.`  
+`takoyaki ga ichiban daisuki desu.`  
+`eiga o miru koto mo suki desu.`  
+`douzo yoroshiku onegaishimasu.`  
+
+#### Indonesia
+Perkenalkan,  
+Nama saya Kaoru. Saya berasal dari Saitama.  
+Umur saya 20 tahun.  
+Hobi saya adalah membaca buku.  
+Saya paling suka Takoyaki.  
+Saya juga suka menonton film.  
+Senang berkenalan dengan Anda (Mohon bimbingannya).  
+___
+
+#### Hiragana
+わたしは たろうです。わたしは しょうがっこうの ごねんせいです。  
+まいにち しちじに おきます。あさごはんの あとで、わたしは
+ひとりで じてんしゃで がっこうへ いきます。がっこうは まいにち
+とても たのしいです。ともだちが たくさん いますから。せんせいは
+とても きれいです。そして、やさしいです。  
+まいにち、しゅくだいが たくさん ありますが、わたしは がっこうが
+すきです。うんどうの じゅぎょうも だいすきです。  
+みんなさんは がっこうが すきですか。  
+
+#### Romaji
+
+#### Indonesia
