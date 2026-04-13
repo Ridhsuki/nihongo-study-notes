@@ -106,5 +106,19 @@ ___
 みんなさんは がっこうが すきですか。  
 
 #### Romaji
+`watashi wa Tarou desu. watashi wa shougakkou no  gonensei desu`  
+`mainichi shichiji ni okimasu. asagohan no ato de, watashi wa hitori de jitensha de gakkou e ikimasu.`  
+`gakkou wa mainichi totemo tanoshii desu. tomodachi ga takusan imasu kara.`  
+`sensei wa totemo kirei desu. soshite, yasashii desu.`  
+`mainichi, shukudai ga takusan arimasu ga, watashi wa gakkou ga sukidesu.`  
+`undou no jugyou mo daisuki desu.`  
+`minasan wa gakkou ga suki desu ka.`
 
 #### Indonesia
+Nama saya Tarou. Saya murid kelas 5 SD.  
+Setiap hari saya bangun jam 7. Setelah sarapan, saya pergi ke sekolah sendiri dengan sepeda.  
+Sekolah sangat menyenangkan setiap hari karena saya punya banyak teman.  
+Guru saya sangat cantik dan baik.  
+Setiap hari ada banyak PR, tetapi saya tetap suka sekolah.  
+Saya juga sangat suka pelajaran olahraga.  
+Apakah kalian semua suka sekolah?  
