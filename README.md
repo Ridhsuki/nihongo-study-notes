@@ -33,7 +33,8 @@ ___
 
 Japanese writing paper : 
 https://drive.google.com/drive/folders/1wvYkmffxrG90oDgKSlWGFSEMk1P4h2T_?usp=sharing
-
+___
+### Hiragana
 #### Day 1 - KANA (1) A-KA-SA - Monday, 6 April 2026
 - youtube material: https://youtu.be/CbXvrMixgh8
 - pdf material: https://drive.google.com/file/d/1LOoXVAjU9QgwTfliwBB4TSDRd3bPwQx2/view?usp=sharing
@@ -59,11 +60,24 @@ https://drive.google.com/drive/folders/1wvYkmffxrG90oDgKSlWGFSEMk1P4h2T_?usp=sha
 - pdf material: https://drive.google.com/file/d/1R67mfDUKVhdu5_OIR1Ympesb27ba2o8d/view?usp=sharing
 - my assignment:
 
+___
+### Katakana
+#### Day 6 - A KA SA - Monday, 13 April 2026
+- youtube material: https://www.youtube.com/watch?v=DWTBb4-8sHY
+- pdf material: https://drive.google.com/file/d/13y2cT66VoVKOyKKfRiWEXMfVfmowm8Sf/view?usp=sharing
+- my assignment:
+
+#### Day 7 - TA NA HA - Tuesday, 14 April 2026
+- youtube material: https://www.youtube.com/watch?v=vkRY4EunPy0
+- pdf material: https://drive.google.com/file/d/1Wxw2hr2BECg7FI8sTblYwRtTgpdRaXyS/view?usp=sharing
+- my assignment:
 
 #### Day _ - KANA (_)  - _ - _ April 2026
 - youtube material: 
 - pdf material: 
 - my assignment:
+
+  
 ___
 
 ### Practices
