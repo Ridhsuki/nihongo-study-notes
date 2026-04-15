@@ -72,6 +72,11 @@ ___
 - pdf material: https://drive.google.com/file/d/1Wxw2hr2BECg7FI8sTblYwRtTgpdRaXyS/view?usp=sharing
 - my assignment:
 
+#### Day 8 - MA YA RA WA N - Wednesday, 15 April 2026
+- youtube material: https://www.youtube.com/watch?v=B6A9LpxJMsA
+- pdf material: https://drive.google.com/file/d/1msWG09xZOfnwLgI6eAvV7jy8lGcuGINl/view?usp=drive_link
+- my assignment:
+
 #### Day _ - KANA (_)  - _ - _ April 2026
 - youtube material: 
 - pdf material: 
@@ -136,3 +141,7 @@ Guru saya sangat cantik dan baik.
 Setiap hari ada banyak PR, tetapi saya tetap suka sekolah.  
 Saya juga sangat suka pelajaran olahraga.  
 Apakah kalian semua suka sekolah?  
+
+
+### Out Off Topics
+Perikanan budidaya https://drive.google.com/drive/folders/1wS8HLPfRb2Dfu4OrqrzHFYrmoJKHHBdY
