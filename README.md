@@ -77,12 +77,15 @@ ___
 - pdf material: https://drive.google.com/file/d/1msWG09xZOfnwLgI6eAvV7jy8lGcuGINl/view?usp=drive_link
 - my assignment:
 
-#### Day _ - KANA (_)  - _ - _ April 2026
-- youtube material: 
-- pdf material: 
+#### Day 9 - Tenten Maru, Ya Yu Yo Kecil, Tsu Kecil, BunyiPanjang - Thursday, 16 April 2026
+- youtube material: https://www.youtube.com/watch?v=ZZ0uh3ae_KU
+- pdf material: https://drive.google.com/file/d/164O1g6ZurlT3jSbbQpTWDxOE7Hf-yzWq/view
 - my assignment:
 
-  
+#### Day 10 -  - April 2026
+- youtube material: https://www.youtube.com/watch?v=ZZ0uh3ae_KU
+- pdf material: https://drive.google.com/file/d/164O1g6ZurlT3jSbbQpTWDxOE7Hf-yzWq/view
+- my assignment:
 ___
 
 ### Practices
