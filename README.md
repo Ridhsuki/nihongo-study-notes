@@ -82,9 +82,9 @@ ___
 - pdf material: https://drive.google.com/file/d/164O1g6ZurlT3jSbbQpTWDxOE7Hf-yzWq/view
 - my assignment:
 
-#### Day 10 -  - April 2026
-- youtube material: https://www.youtube.com/watch?v=ZZ0uh3ae_KU
-- pdf material: https://drive.google.com/file/d/164O1g6ZurlT3jSbbQpTWDxOE7Hf-yzWq/view
+#### Day 10 -  - FridaY April 2026
+- youtube material: https://us06web.zoom.us/j/83472663590?pwd=hN2x2FDCysh8Q3nmhYDaaK3HebtKPw.1
+- pdf material: 
 - my assignment:
 ___
 
@@ -145,6 +145,26 @@ Setiap hari ada banyak PR, tetapi saya tetap suka sekolah.
 Saya juga sangat suka pelajaran olahraga.  
 Apakah kalian semua suka sekolah?  
 
+#### Katakana
+##### Katakana Reading Practices
+| Katakana | Romaji | Meaning |
+| :--- | :--- | :--- | 
+| メモ | `memo`  | _Memo_ |
+| コロナ | `korona` | _Corona Virus_ |
+| アイコン | `aikon` | _Icon_ |
+| ハンカチ | `hankachi` | Sapu tangan / _Handkerchief_ |
+| レモン | `lemon` | _Lemon_ |
+| クリスマス | `kurimasu` | Natal / _Christmas_ |
+| レタス | `retasu` | Selada / _Lettuce_ |
+| ハンサム | `hansamu` | Tampan / _Handsome_ |
+| クリスタル | `kurisutaru` | _Crystal_ |
+| コイン | `koin` | _Coin_ |
+| センチ | `senchi` | _Centimeter_ |
+| エントランス | `entoransu` | Pintu masuk Lobi / _Entrance_ |
+| アニメ | `anime` | _Anime_ |
+| リスト | `risuto` | Daftar / _List_ |
+| アメリカ | `amerika` | _America_ |
+| カメラ | `kamera` | _Camera_ |
 
 ### Out Off Topics
 Perikanan budidaya https://drive.google.com/drive/folders/1wS8HLPfRb2Dfu4OrqrzHFYrmoJKHHBdY
