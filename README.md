@@ -24,6 +24,9 @@ https://drive.google.com/drive/folders/1ADywLEqwTj6pcX8dF2xT-N3vL6FFI1sq?usp=sha
 Muzukashii Nihongo 
 WaGoMu #JapaneseClass
 
+## Resources via website
+https://jiaec.co.id/belajar/
+
 ## Ujian SSW
 https://www.prometric-jp.com/id/ssw/test_list/
 ___
@@ -83,7 +86,7 @@ ___
 - my assignment:
 
 #### Day 10 -  - FridaY April 2026
-- youtube material: https://us06web.zoom.us/j/83472663590?pwd=hN2x2FDCysh8Q3nmhYDaaK3HebtKPw.1
+- youtube material: https://drive.google.com/drive/u/2/folders/18MRNMX-RgIuzAnxXVd4VULCu8xOpGqqH
 - pdf material: 
 - my assignment:
 ___
@@ -168,3 +171,4 @@ Apakah kalian semua suka sekolah?
 
 ### Out Off Topics
 Perikanan budidaya https://drive.google.com/drive/folders/1wS8HLPfRb2Dfu4OrqrzHFYrmoJKHHBdY
+https://lynk.id/kenaljepang
