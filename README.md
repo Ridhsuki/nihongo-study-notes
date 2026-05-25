@@ -170,6 +170,7 @@ Apakah kalian semua suka sekolah?
 | カメラ | `kamera` | _Camera_ |
 
 ### Out Off Topics
-Perikanan budidaya https://drive.google.com/drive/folders/1wS8HLPfRb2Dfu4OrqrzHFYrmoJKHHBdY
-https://lynk.id/kenaljepang
-N3 Example Questions https://chatgpt.com/share/6a127a3c-7004-83ec-bd82-2f82c679e695
+- Perikanan budidaya: https://drive.google.com/drive/folders/1wS8HLPfRb2Dfu4OrqrzHFYrmoJKHHBdY
+- https://lynk.id/kenaljepang
+- N3 Example Questions: https://chatgpt.com/share/6a127a3c-7004-83ec-bd82-2f82c679e695
+- https://www.facebook.com/share/1BUYEnJgMX/
