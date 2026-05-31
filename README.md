@@ -174,3 +174,5 @@ Apakah kalian semua suka sekolah?
 - https://lynk.id/kenaljepang
 - N3 Example Questions: https://chatgpt.com/share/6a127a3c-7004-83ec-bd82-2f82c679e695
 - https://www.facebook.com/share/1BUYEnJgMX/
+- JLPT PLANNER ( Key Performance Indicator/Jurnal Belajar JLPT ): https://drive.google.com/file/d/1D6dBL11W82qnUlF2_Ke-VSbl-pTv1cwK/view
+- Materi belajar bahasa jepang by KPI: https://drive.google.com/drive/u/0/folders/1vuDX1CHpjyEGZ6ZgomUBfp00dyTzE-w5?safe
