@@ -177,3 +177,4 @@ Apakah kalian semua suka sekolah?
 - JLPT PLANNER ( Key Performance Indicator/Jurnal Belajar JLPT ): https://drive.google.com/file/d/1D6dBL11W82qnUlF2_Ke-VSbl-pTv1cwK/view
 - Materi belajar bahasa jepang by KPI: https://drive.google.com/drive/u/0/folders/1vuDX1CHpjyEGZ6ZgomUBfp00dyTzE-w5?safe
 - Tugas akhir mahasiswa ini keren banget cik https://manabu.my.id/
+- https://drive.google.com/drive/folders/1fWQ3uvC-ck9z-lWl0i3lNW0ePRU79tcX
