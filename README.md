@@ -178,3 +178,5 @@ Apakah kalian semua suka sekolah?
 - Materi belajar bahasa jepang by KPI: https://drive.google.com/drive/u/0/folders/1vuDX1CHpjyEGZ6ZgomUBfp00dyTzE-w5?safe
 - Tugas akhir mahasiswa ini keren banget cik https://manabu.my.id/
 - https://drive.google.com/drive/folders/1fWQ3uvC-ck9z-lWl0i3lNW0ePRU79tcX
+
+https://shop.ajiraya.com/blog/Download-Materi-JFT-Gratis
